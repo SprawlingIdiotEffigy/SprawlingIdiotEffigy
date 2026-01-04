@@ -58,3 +58,5 @@ YUME LIST (List of the characters I yume with , so non sharing yumes can be awar
 - Ludwig (Hetalia)
 - Alfred (Hetalia)
 - The Puppet Master (Prodigy)
+- Rhombulus (SVTFOE)
+- Enderman (Mob School , Minecraft)
