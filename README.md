@@ -1,6 +1,25 @@
 Hi there. Quite nice to meet you!
+You may call me Myst , Lamp , or Inky
 
 <img src="https://i.pinimg.com/736x/01/54/b7/0154b72124da1c60f1bae9a41bc3ba1f.jpg" alt="ELLIOT☀️ || waapp"/>
+
+FEW THINGS TO KNOW ABOUT ME :
+
+- Firm non-believer in Lampert being Wallmark's ship child as this is not canon and I hate it
+- AFAB but I go by any pronouns. I dont particularly go by xeno/neo pronouns but I dont care abt being called them
+- LESBIAN ALL THE WAY BABY
+- Taken
+- 18 years old
+- Major Anti-Proship
+- Anti-Trump , Anti-Kirk
+- Politics HATER
+- I love my friends [some will be tagged on here]
+- Hides Freely , Selective Block
+- Firm about DNIs
+- Checks socials of everyone who ints with me, just in case
+- Always sitting with my friends Adam, Ghost, Silo, or Brad (when hes on Ponytown)
+- Only adds friends on discord after speaking with them for a while
+- Does not friend freely
 
 GENERAL DNI LIST : 
 
@@ -14,6 +33,7 @@ GENERAL DNI LIST :
 - Anyone who wishes to engage about talks in politics. I hate politics , I hate trump , and I hate charlie kirk. If you support the ideals of these people , dni. I do not wish to talk about the crumbling ecomomy of the US.
 - Skin theives. If you engage in the act of stealing skins from others and claiming them as your own , or taking heavy inspo from someone who requests you dont , do not interact with me.
 - Problematic kins , systems, and yumes. This does not span to all , but yes , they exist. If any of these fall into line with characters like Val from HH or LeyLey fro TCOALL , keep away from me.
+- 15 or younger! I am 18 and generally uncomfortable with anyone lower than 16 interacting with me. 
 
 <img width="1600" height="400" alt="4ucohf40h2nbg9v6q4d991o0g5" src="https://github.com/user-attachments/assets/3be88fe9-4fd8-4828-8d8a-9a235ba29491" />
 
