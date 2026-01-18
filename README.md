@@ -21,6 +21,8 @@
 <p align="center"> - Only adds friends on discord after speaking with them for a while
 <p align="center"> - Does not friend freely
 
+<p align="center"> <img src="https://icon2.cleanpng.com/20180331/goq/avco9jiom.webp"/>
+
 <p align="center"> GENERAL DNI LIST : 
 
 <p align="center"> - Pro/Darkshippers. Commshippers are fine, but if you ship anything within the borders of dark/pro please do not interact with me!
