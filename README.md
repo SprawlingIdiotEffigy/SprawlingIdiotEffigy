@@ -21,7 +21,7 @@
 <p align="center"> - Only adds friends on discord after speaking with them for a while
 <p align="center"> - Does not friend freely
 
-<p align="center"> <img src="https://icon2.cleanpng.com/20180331/goq/avco9jiom.webp"/>
+<p align="center"> <img width="2000" height="202" alt="—Pngtree—labor day red dividing line_5404430" src="https://github.com/user-attachments/assets/468319b0-04ea-4f46-a208-08096e3155f6" />
 
 <p align="center"> GENERAL DNI LIST : 
 
@@ -37,7 +37,7 @@
 <p align="center"> - Problematic kins , systems, and yumes. This does not span to all , but yes , they exist. If any of these fall into line with characters like Val from HH or LeyLey fro TCOALL , keep away from me.
 <p align="center"> - 15 or younger! I am 18 and generally uncomfortable with anyone lower than 16 interacting with me. 
 
-<p align="center"> <img width="1600" height="400" alt="4ucohf40h2nbg9v6q4d991o0g5" src="https://github.com/user-attachments/assets/3be88fe9-4fd8-4828-8d8a-9a235ba29491" />
+<p align="center"> <img width="2000" height="202" alt="—Pngtree—labor day red dividing line_5404430" src="https://github.com/user-attachments/assets/468319b0-04ea-4f46-a208-08096e3155f6" />
 
 <p align="center"> FANDOM IWEC LIST (I have no fandoms that CANNOT int , though these ones should be cautious) :
 
