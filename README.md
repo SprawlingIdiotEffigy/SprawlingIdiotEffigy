@@ -1,7 +1,8 @@
 <p align="center"> Hi there. Quite nice to meet you!
 <p align="center"> You may call me Myst , Lamp , or Inky
 
-<p align="center"> [<img src="https://i.pinimg.com/736x/01/54/b7/0154b72124da1c60f1bae9a41bc3ba1f.jpg" alt="ELLIOT☀️ || waapp"/>](https://www.instagram.com/p/DSXXW9ckdD4/?utm_source=ig_web_button_share_sheet)
+<p align="center"> <img src="https://pbs.twimg.com/media/G-2F2mva4AAbErn.png" alt="Zabooboo3 where i&#39;m i ? &quot; #zabooboo3 #AReGect #ReGect #zgect"/>
+
 
 <p align="center"> FEW THINGS TO KNOW ABOUT ME :
 
